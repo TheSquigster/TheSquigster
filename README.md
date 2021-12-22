@@ -1,0 +1,5 @@
+- 👋 Hi, I’m TheSquigster (Squiggy for short)
+- 👀 I’m interested in Gaming, Crypto, Coding, and Community! 
+- 🌱 I’m currently learning how to code and more about Crypto.
+- 💞️ I’m looking to collaborate on a Crypto Project.
+- 📫 You can reach me at catkorn111@gmail.com
